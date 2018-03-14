@@ -1,0 +1,1 @@
+This will show you all the top spots to try out in San Diego. (still not fully completed, will fix at a later date.)
